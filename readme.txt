@@ -1,2 +1,2 @@
-shamook saad is a good learner..
-and quick learner
+shamook saad is a good..
+and quick learner.
